@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DinuDante
-- 👀 I’m interested in On-Demand and Optimal Tech.
-- 🌱 I’m currently learning as an DevOps Engineer.
-- 💞️ I’m looking to collaborate on Ansible Automation.
-- 📫 How to reach me @9040632014
+- 👀 I’m interested in On-Demand and Optimal Technology || Latest D2D Add-ons.
+- 🌱 I’m currently learning as an DevOps Engineer || Mass Handler || Productive-Geek.
+- 💞️ I’m looking to collaborate on Innovative Centric Development.
+- 📫 How to reach me WhatsApp@9040632014 || dineshdante.ds@gmail.com.
